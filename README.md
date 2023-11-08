@@ -1,1 +1,5 @@
-hi lol this is a readme for my personal stuff lolhow are u guys doing today? well, I hope...look through this stuff if u want I would be humbled and flattered that u are dipping ur toes into this section of my lifepls don't be too intrusive tho lmAO
+hi lol this is a readme for my personal stuff lol
+
+there is not too much to read here. . . . .... go explore dickhead
+
+
